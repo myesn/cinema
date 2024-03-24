@@ -10,7 +10,8 @@
 - 遮天：第 45 集
 - 完美世界：第 155 集
   - 经典：117（荒首现）、123（十洞天合一）、135（相爱不敢相认）、136（举飞仙石参悟上苍之手）、138（被神秘女子一救）、142（炼化金菩果）、148（秒杀天命石融合人）、155（重见火灵儿）
-  - 《须臾》：https://v.qq.com/x/cover/mcv8hkc8zk8lnov.html?sf=uri
+  - 《须臾》：https://v.qq.com/x/cover/mcv8hkc8zk8lnov.html
+  - 《朝朝如念》：https://v.qq.com/x/cover/mcv8hkc8zk8lnov.html
 - 炼气十万年：第 86 集
 - 苍兰诀: [23 集](https://www.dmlaa.com/play/7579-1-23.html)
 - 剑道第一仙
